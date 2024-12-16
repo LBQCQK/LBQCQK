@@ -1,5 +1,4 @@
 Hi, I’m @LBQCQK
-I’m interested in genshin
 I’m currently learning java
 How to reach me ... 
 
